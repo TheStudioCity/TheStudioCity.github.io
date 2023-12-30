@@ -26,3 +26,7 @@ Feel free to reach out to me on Instagram for any questions or feedback!
 
 [![Follow me on Instagram](https://img.shields.io/badge/Follow%20on%20Instagram-%40thestudiocityx-orange)](https://www.instagram.com/thestudiocityx)
 
+Email - thestudiocityx@gmail.com
+
+Thank you!
+
